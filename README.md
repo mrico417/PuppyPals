@@ -1,1 +1,1 @@
-# Unit 3, Block 25, Puppy Pals Workshop
+# Unit 3, Block 24, Puppy Pals Workshop
